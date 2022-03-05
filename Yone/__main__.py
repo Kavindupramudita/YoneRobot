@@ -95,7 +95,8 @@ I have lots of handy features such as:
 
 So what are you waiting for?
 *Add me in your groups and give me full rights to make me function well.*
-"""
+""
+𝐆𝐫𝐨𝐮𝐩 (https://t.me/RXT_VPN) 𝐂𝐡𝐚𝐧𝐧𝐞𝐥 (https://t.me/RXT_CHANNEL)
 
 
 
